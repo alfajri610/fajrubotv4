@@ -1,2 +1,0 @@
-# fajrubotv4
-GRATIS
